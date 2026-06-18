@@ -1,3 +1,3 @@
 as known as coolingtool or cooling
 
-i lost the credentials for my previous account
+i lost the credentials to my previous account
